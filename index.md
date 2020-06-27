@@ -11,3 +11,6 @@ Once upon a time, there was a tiny country called Cornucopia, which had been rul
 * smiled and waved whenever anyone caught sight of him
 * looked awfully handsome in the portraits that were distributed throughout the kingdom
 
+> I do treat them well, don’t I?
+> And after all, chaps, I’ve got to look my blasted best today, haven’t I? 
+> You know how dressy the King of Pluritania always is!
